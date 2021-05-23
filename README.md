@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @saltenhancer
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning code
+- 💞️ I’m looking to collaborate on not collaborating
+- 📫 How to not reach me
